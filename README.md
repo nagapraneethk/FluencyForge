@@ -1,3 +1,3 @@
 # FluencyForge
 
-Files will be uploaded shortly...
+The files will be uploaded soon. Thank you.
